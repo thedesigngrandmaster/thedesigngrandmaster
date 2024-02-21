@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Samuel. I'm also known as @thedesigngrandmaster
+- 👀 I’m interested in graphic design, birthing new ideas, and making money.
+- 🌱 I’m currently learning JavaScript, React.js and Python
+- 💞️ I’m looking to collaborate on with programmers who are also learning this programming languages 
+- 📫 How to reach me? You can email me on google sam.ravenspy@gmail.com; or 'hi' me on WhatsApp +2349132713169
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: If you learn to code, it will improve your analytical thinking ability, problem-solving skills, and ability to make quick decisions
