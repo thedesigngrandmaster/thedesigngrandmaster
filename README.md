@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on with programmers who are also learning this programming languages 
 - 📫 How to reach me? You can email me on google sam.ravenspy@gmail.com; or 'hi' me on WhatsApp +2349132713169
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: If you learn to code, it will improve your analytical thinking ability, problem-solving skills, and ability to make quick decisions
+- ⚡ Fun fact: If you learn to code, it will improve your analytical thinking ability, problem-solving skills, and ability to make quick decisions.
